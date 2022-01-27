@@ -1,6 +1,7 @@
 - 👋 Hi, I’m @luzsemoIT
 - 👀 I’m interested in giving talents the best opportunities for professional growth
 - 🌱 I’m currently learning recruiting strategies to be the best professional I can be!
+- 📖 My hobbies include creative writing, singing and playing the piano. I also love animals and I´m a cat mom
 - 📫 How to reach me: luz.semo@jobsity.com or https://www.linkedin.com/in/luz-semo/ 
 
 <!---
